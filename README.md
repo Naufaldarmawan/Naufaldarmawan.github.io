@@ -1,1 +1,1 @@
-
+Orang Ganteng
